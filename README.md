@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m @Adeeb-Bin-Huda<br>👀 I’m interested in CP,AI,Software Development in JAVA<br>🌱 I’m currently learning JAVA<br>💞️ I’m looking to collaborate on JAVA<br>📫 How to reach me adeeb.bin.huda.2020@gmail.com<br>😄 Pronouns: ...<br>⚡ Fun fact: ...
+Hi, I’m @Adeeb-Bin-Huda<br>👀 I’m interested in CP,AI,Software Development in JAVA<br>🌱 I’m currently learning JAVA<br>💞️ I’m looking to collaborate on JAVA<br>📫 How to reach me adeeb.bin.huda.2020@gmail.com<br>😄 <br>⚡ Fun fact:
 
 
 ## 🌐 Socials:
